@@ -1,1 +1,1 @@
-![image](https://github.com/ctwhome/ctwhome/assets/4195550/7499689e-2761-44c4-b2cc-585165654fa4)
+![image](https://github.com/ctwhome/ctwhome/assets/4195550/a864e2a7-0cd5-40b6-8409-6c71f9da0246)
